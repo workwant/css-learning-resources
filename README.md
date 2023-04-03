@@ -1,4 +1,4 @@
-#### [+ Here Submitting New Resources](https://we.workwant.com/groups/?id=4672399633)
+#### [+ Here Submitting New Resources](https://www.alovez.com/groups/?id=4672399633)
 # Foundations:
 https://cssreference.io/
 
